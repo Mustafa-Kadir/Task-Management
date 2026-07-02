@@ -1,1 +1,2 @@
-<img width="606" height="592" alt="taskkss" src="https://github.com/user-attachments/assets/50645dd2-0104-43c4-a98b-74305d3fa1d7" />
+<img width="1365" height="619" alt="masterd" src="https://github.com/user-attachments/assets/fab401c0-99b2-42af-bd85-435a6e226784" />
+
